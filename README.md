@@ -1,3 +1,7 @@
+# 💫 Hi 👋, I'm Abhinav Thapliyal
+**A passionate ML Engineer || GEN AI engineer
+
+Email Me 👉 ✉️ **abhinavthapliyal2@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/__abhinav26) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:abhinavthapliyal2@gmail.com) 
